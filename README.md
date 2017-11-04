@@ -1,2 +1,5 @@
 # taiwan-namba-wan
-monero is vest cash in tha world
+monero iz vest cashi in tha world
+
+# Sea thuat
+yogi: https://mining.best
